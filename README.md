@@ -22,5 +22,5 @@ If you like this project then give it a **Github** star by pressing the **Star**
 
 <br>
 
-## Special Thanks ❤️
+## Thanks for attention ❤️❤️❤️
 
