@@ -1,4 +1,4 @@
-# Dopefolio 🔥
+# Profolio 🔥
 
 ## Technologies used 🛠️
 
